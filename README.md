@@ -1,1 +1,1 @@
-https://CybNova.github.io/rsschool-cv/cv
+https://CybNova.github.io/rsschool-cv/
