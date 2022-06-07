@@ -1,1 +1,1 @@
-# rsschool-cv
+https://CybNova.github.io/rsschool-cv/
